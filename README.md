@@ -1,2 +1,1 @@
-# bemoeizorgguru-portrait
-doctor janssen vs jomanda
+![](https://github.com/nondejus/bemoeizorgguru-portrait/blob/master/1240.jpeg)
